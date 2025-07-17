@@ -8,7 +8,7 @@
 | Teresia Kamau        | teresiakamau103@gmail.com | +254 799 435 366 |
 | Hildah Lokwawi       | hildahnaz2015@gmail.com   | +254 717 046 679 |
 | Mercylyne Jepleting  | mercylynetuwei@gmail.com  | +254 721 550 130 |
-| Nelly Maritim        | chelimosheila711@gmail.com| +254 726 856 366 |
+| Nelly Maritim        | nsegecha@gmail.com        | +254 726 856 366 |
 
 
 ## Overview
